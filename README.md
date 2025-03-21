@@ -13,3 +13,7 @@
 - Atlamadım uçurumdan ben yüzleşmeliyim korkularımla (Rozz Kalliope - Darılmışsın)
 
 - Hiçbiri bilmez ne kaybettiğimi ama hepsi bilir ne kadar kazandığımı (Joker ft Defkhan - Yeni Bir Neden)
+
+- Kendini yormana değmez nasılsa emeğin karşılığı gelmez bazen viski plastik bardakta şarap kadar mutluluk vermez (MRF - Uçan Para)
+
+- Parayı bulabilir her biri ama kimse olamaz bizim kadar Hip Hop zengini (Mode XL - Düzmece)
